@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rajulamsal62@gmail.com**
 
-- ⚡ Fun fact **Traveler, Rapper, Song Lover, Supporter & Motivator**
+- ⚡ Fun fact **Traveller, Rapper, Song Lover, Supporter & Motivator**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
